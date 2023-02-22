@@ -23,9 +23,9 @@ Environmental Scientist, Arcadis, Wood River, IL 		 		  2019 - 2022
 *   Perform routine equipment maintenance and calibrations in both field and laboratory settings
 *   Assist in the writing and updating of weekly, quarterly, and annual reports
 *   Train new staff members
-•	Supervise contractors completing various tasks
-•	Maintain a strong focus on Health and Safety while undertaking tasks
-•	Task manage groundwater sampling and gauging, including preparing for events
+*   Supervise contractors completing various tasks
+*   Maintain a strong focus on Health and Safety while undertaking tasks
+*   Task manage groundwater sampling and gauging, including preparing for events
 
 Biologist, Experis Contractor at Bayer Crop Science Division, Bio, Chesterfield, MO	2018 - 2019
 *   Prepared and gathered crops/weeds for herbicide testing
